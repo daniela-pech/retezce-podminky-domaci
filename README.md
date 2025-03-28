@@ -1,0 +1,1 @@
+"# retezce-podminky-domaci" 
